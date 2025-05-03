@@ -32,7 +32,7 @@ alfreds playhouse, and gravity falls, dead plate, sonic the hedgehog, and tcoal 
 𝑫𝑵𝑰 𝑳𝑰𝑺𝑻 ( 𝑩𝑨𝑺𝑰𝑪 𝑫𝑵𝑰𝑺 !! )
 
 . 。・゜✭・.・✫゜・。.
-proshippers/darkshippers, comshippers, r@pists/ r@pe jokes, VERY immature ppl (im immature but i am not this bad), people who make fun of beginner skins, its rude..stop it. toxic people,
+proshippers/darkshippers, comshippers, r@pists/ r@pe jokes, VERY immature ppl (im immature but i am not this bad),tr@nsph0bes/h0m0ph0bes, n3cr0ph1les or anything in the "phile" category, people who make fun of beginner skins, its rude..stop it. toxic people,
 manipulators and or anything like that, gr00mers, 20+..sorry but i dont want full grown adults talking to me, its weird. r@cist people or people who normally/casually say
 the N word even with the pass, i dont tolerate it, sorry not sorry lol! mainly just weirdos and general, i dont think i need to explain myself.
 
