@@ -15,7 +15,7 @@ heres my dni list,, if ur like this or on here please do not int w me, thank u! 
 𝑫𝑵𝑰 𝑳𝑰𝑺𝑻 ( 𝑺𝑯𝑰𝑷𝑺 !! )
 
 . 。・゜✭・.・✫゜・。.
-shellvision (might make exceptions bear w me), any ship w shrimpo bc honestly its just toxic, sorry! 
+shellvision (dniuf. might make exceptions bear w me), any ship w shrimpo bc honestly its just toxic, sorry! 
 angryhugs, fruitcake, bobette x ginger (idk the ship name forgive me!!), reflectivedetective, any ships with toodles,
 any ships with pebble OR coal (its weird, why would u ship a dog or child with anyone? screams weirdo.) rodger x eggson
 (idk why some of you guys ship them,eggson looks older than rodger and could literally be his granpa if he wanted to.) 
